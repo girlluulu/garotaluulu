@@ -7,6 +7,7 @@ Estou estudando na [Alura](https.//alura.com.br)
 Estou desenvolvendo estudos de tecnologia 
 
 
-###Voc pode entrar em contato comigo 📫
+### Você pode entrar em contato comigo 📫
 
-[](https://media.tenor.com/mMWXOkCEndoAAAAM/ka-chow-lightning-mcqueen.gif)
+![](https://media1.tenor.com/m/mMWXOkCEndoAAAAd/ka-chow-lightning-mcqueen.gif)
+
